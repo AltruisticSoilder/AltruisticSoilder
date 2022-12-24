@@ -1,6 +1,4 @@
 - 👋 Hi, I’m @AltruisticSoilder
-- 👀 I’m interested in ...
-- 🌱 I’m currently learning ...
 
 
 
